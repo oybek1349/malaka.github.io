@@ -1,0 +1,1 @@
+Malaka oshirish test javoblari
